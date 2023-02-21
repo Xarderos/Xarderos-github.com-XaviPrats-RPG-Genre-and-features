@@ -84,7 +84,15 @@ Indicades les referències a continuació es mostren els tipus principals de RPG
 
 # Conclusions
 
+## -La definició de RPG és molt difusa a vegades, i la que s'ha pogut veure aquí és només una de les possibles, en la meva opinió la que més bé els defineix, pero cada persona pot tenir la seva pròpia opinio sobre què es un RPG i què deixa de ser-ho.
 
+## -Per mi, la part més interessant de fer aquest treball ha sigut descobrir la grandissima varietat de RPG que hi ha però d'alguna manera es veu que tot vé del mateix punt de partida
 
+## -La diferència de JRPG i WRPG és important per entendre què son els RPG i veure les diferents vessants d'aquests.
 
+# Exercici
+
+## Per acabar, proposo un exercici:
+
+## The Legend Of Zelda és un RPG? si ñes aixi, de quin tipus?
 
