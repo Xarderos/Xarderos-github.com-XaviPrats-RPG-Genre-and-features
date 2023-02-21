@@ -20,6 +20,26 @@ A continuació es podran veure els 5 punts següents:
 
 ![Genere i caracteristiques dels RPG-04](https://user-images.githubusercontent.com/99949891/220437714-eed12019-f298-4d16-9dec-5bcfde1d38ba.png)
 
-Tenint en compte aquesta definició inicial, el CS:GO és un RPG?
+## Tenint en compte aquesta definició inicial, el CS:GO és un RPG?
 
 ![Genere i caracteristiques dels RPG-05](https://user-images.githubusercontent.com/99949891/220437786-6072a5ca-fa54-468f-b32f-efe946fcb2d6.png)
+
+## Doncs com ja es pot entendre el CS:GO no és un RPG, aixi que hem de ser més precisos amb la definició:
+
+![Genere i caracteristiques dels RPG-06](https://user-images.githubusercontent.com/99949891/220438041-969abdcd-1648-4d61-93a7-ee370caaca1d.png)
+
+## Faltava una història, cosa que el CS:GO no té, així que ja tenim la definició no?
+
+![Genere i caracteristiques dels RPG-07](https://user-images.githubusercontent.com/99949891/220438365-5bba8fd3-3cc5-4800-a0b1-75d399b80d8e.png)
+
+
+
+
+
+
+
+
+
+
+
+
