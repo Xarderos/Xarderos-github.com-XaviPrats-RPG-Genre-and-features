@@ -94,5 +94,5 @@ Indicades les referències a continuació es mostren els tipus principals de RPG
 
 ## Per acabar, proposo un exercici:
 
-## The Legend Of Zelda és un RPG? si ñes aixi, de quin tipus?
+## The Legend Of Zelda és un RPG? si és aixi, de quin tipus?
 
