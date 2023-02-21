@@ -58,4 +58,33 @@ En aquest exemple podem veure els "stats" del Dragon Quest VII i el Dark Souls 3
 
 ![Genere i caracteristiques dels RPG-18](https://user-images.githubusercontent.com/99949891/220441662-6335412b-cf1c-4688-b241-0bbc3aad6e94.png)
 
+## WRPG és un Western RPG (principalment Estats Units) i un JRPG és un Japanese RPG, el WRPG té una estètica més fosca i no s'hi fica tant enfasi a l'història del videojoc, mentre que el JRPG la història és menys fosca i més fantàstica i se li dona més importància.
+
+![Genere i caracteristiques dels RPG-19](https://user-images.githubusercontent.com/99949891/220442056-a65743d6-cd8c-4506-8a4f-24ccdc78e3aa.png)
+
+## Tot i els noms d'aquests dos grups de RPG indiquen localitat no ténen perquè ser aixi, hi ha JRPG fets a EU i WRPG fets a Japò, a continuació uns exemples:
+
+![Genere i caracteristiques dels RPG-21](https://user-images.githubusercontent.com/99949891/220443228-7560dca8-0477-47e6-97ab-97fd088855bd.png)
+
+![Genere i caracteristiques dels RPG-22](https://user-images.githubusercontent.com/99949891/220443243-ae02e6ae-38d2-452d-bf04-1b140c593588.png)
+
+Indicades les referències a continuació es mostren els tipus principals de RPG:
+
+![Genere i caracteristiques dels RPG-23](https://user-images.githubusercontent.com/99949891/220443471-3b8bcc8f-d0ef-4ac4-9dbd-4ade8f58497a.png)
+
+![Genere i caracteristiques dels RPG-24](https://user-images.githubusercontent.com/99949891/220443473-20d78a46-4b80-4a75-9562-4de240c643bd.png)
+
+![Genere i caracteristiques dels RPG-25](https://user-images.githubusercontent.com/99949891/220443535-4bcb4b11-6b1e-4133-a290-55252f96e0f6.png)
+
+![Genere i caracteristiques dels RPG-26](https://user-images.githubusercontent.com/99949891/220443540-3e8e43fa-654c-425a-b48e-512f4e6114cb.png)
+
+![Genere i caracteristiques dels RPG-27](https://user-images.githubusercontent.com/99949891/220443542-3402c75c-b2fe-45ba-a34e-8aea9c9cf461.png)
+
+![Genere i caracteristiques dels RPG-29](https://user-images.githubusercontent.com/99949891/220443547-9f979939-3408-4228-8b41-d2cf30b668d5.png)
+
+
+
+
+
+
 
