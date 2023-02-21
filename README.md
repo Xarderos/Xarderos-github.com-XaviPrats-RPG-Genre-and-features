@@ -82,7 +82,7 @@ Indicades les referències a continuació es mostren els tipus principals de RPG
 
 ![Genere i caracteristiques dels RPG-29](https://user-images.githubusercontent.com/99949891/220443547-9f979939-3408-4228-8b41-d2cf30b668d5.png)
 
-
+# Conclusions
 
 
 
